@@ -47,3 +47,5 @@ Cara membuatnya:
 </ol>
 
 Nah itu dia resep yang bisa kami sampaikan untuk entry kali ini jika masih penasaran dengan yang lain bisa menuju <a href="http://resepnusa.net">resep masakan indonesia</a>
+
+Terima Kasih
